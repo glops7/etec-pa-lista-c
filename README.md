@@ -1,0 +1,1 @@
+# glops7-etec-pa-lista-c
